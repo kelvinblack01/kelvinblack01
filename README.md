@@ -9,6 +9,6 @@
 
 00001077197238sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/isagi-blue-lock-football-anime-boy-gif-3320920419900943132)
+:b
+![_](https://tenor.com/pt-BR/view/nagi-blue-lock-gif-27378460)
 
-![](https://tenor.com/pt-BR/view/nagi-blue-lock-gif-27378460)
